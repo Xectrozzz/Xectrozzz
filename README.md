@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Xectrozzz
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning phython and c++.
+- 💞️ I’m looking to collaborate on discord mod.
+- 📫 Dm me in discord, Xectrozz#8254.
